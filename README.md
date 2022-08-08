@@ -1,4 +1,4 @@
-# AmazonCrackedResource
+# AmazonCrackedResource 
 A List of frequently asked questions in Amazon's Online Assessment and Interviews
 
 Please leave a STAR 🌟 and SUBSCRIBE to our channel for more AMAZING content! ❤️
